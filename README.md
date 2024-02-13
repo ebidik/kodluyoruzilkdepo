@@ -1,0 +1,1 @@
+burada ne yapacagımı anlamadım ustune calısmam lazım tekrar kontrol edıcem
